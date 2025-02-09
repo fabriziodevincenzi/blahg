@@ -9,6 +9,8 @@ tags:
 added: 2022-10-05T22:00:00.000Z
 ---
 
+![](/assets/bar-wurzburg-edera.jpg)
+
 Mi sono accorto che forse potrei essere un campione in chiacchiere da bar. Però non vado più molto spesso al bar e quando ci vado faccio parlare gli altri. Oppure come quella volta in un bar di Wurzburg scelto solo per il muro esterno ricoperto di edera. Andai lì in cerca di una conversazione casuale con qualche avventore che non arrivò mai, la conversazione intendo. Tornai al campeggio in silenzio, dopo un paio di boccali di birra.
 
 Ecco qual è l'immagine che mi viene in mente pensando finalmente di prendere in mano la situazione e fare questa cosa che avete qui davanti. Dopo anni in cui ho scritto, ma soprattutto ho voluto tanto scrivere senza farlo, cioè ho creato blog rimasti vuoti e poi scaduti, passando per ritrovarmi come molti a pubblicare su Instagram foto che parlavano da sole senza dire nulla, alla fine forse ho trovato la mia dimensione. Zero contenitori, un canale diretto, molte parole, qualche fotografia d'accompagnamento. Un blog vecchio stile, minimalista e senza esigenze, ma che c'entra con la privacy (tema che forse sarà ricorrente). Proverò a darmi una cadenza mensile per scrivere del più e del meno, per chi troverà piacere nel leggermi prima ancora di chi mi concederà di entrare nella propria casella di posta elettronica.
@@ -22,8 +24,5 @@ Più che un viaggio in realtà fu una lunga gita fuori porta, scegliendo il camp
 Tanto che feci una foto al posto che ho riguardato solo stasera, anche con occhio più attento. Perché quello che ho scritto è comunque solo una parte di ciò che ricordo, oppure di ciò che ho visto e sentito ma che non ricordo. Tutte cose per le quali una foto merita, sempre e comunque, ben più di cinque secondi di attenzione. Eccola qui.
 
 Fu una bella settimana, piena di riflessioni che portarono a qualcosa. Posso perciò annoverare quelle tappe tra quelle che associo alle tappe più metaforiche della crescita personale, morale ed emotiva. Altra cosa che mi riporta a oggi, cioè dove penso e spero che si piazzerà più o meno un'altra tappa.
-
-
-
 
 Se sarò costante nello scrivere i post, sarà la cartina tornasole. Per farlo ovviamente rileggerò le bozze più volte, ma non cercherò la perfezione. Troverete degli errori e me ne scuso fin d'ora. Altri errori invece saranno voluti perché userò molto una forma discorsiva. Lo noterete. Soprattutto sulla punteggiatura. Non parlerò di me, se non per prendere spunti dal mio vissuto. Se vi va di rispondermi non sarà tempo perso, sicuramente per me che spero leggerò.
