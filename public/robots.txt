@@ -1,4 +1,4 @@
-Sitemap: https://fabriziodevincenzi.netlify.app
+Sitemap: https://fabriziodevincenzi.netlify.app/sitemap-index.xml
 
 User-agent: *
 Disallow:
