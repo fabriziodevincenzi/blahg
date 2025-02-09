@@ -9,7 +9,7 @@ tags:
 added: 2022-10-05T22:00:00.000Z
 ---
 
-Mi sono accorto che forse potrei essere un campione in chiacchiere da bar. Però non vado più molto spesso al bar e quando ci vado faccio parlare gli altri. Oppure come quella volta in un bar di Wurzburg scelto solo per il muro esterno ricoperto di edera. Andai lì in cerca di una conversazione casuale con qualche avventore che non arrivò mai, la conversazione intendo. Tornai al campeggio in silenzio, dopo un paio di boccali di birra.
+Mi sono accorto che forse potrei essere un campione in chiacchiere da bar. Però non vado più molto spesso al bar e quando ci vado faccio parlare gli altri. Oppure come quella volta in un bar di Wurzburg, in Germania, scelto solo per il muro esterno ricoperto di edera. Andai lì in cerca di una conversazione casuale con qualche avventore che non arrivò mai, la conversazione intendo. Tornai al campeggio in silenzio, dopo un paio di boccali di birra.
 
 ![](/assets/bar-wurzburg-edera.jpg)
 
