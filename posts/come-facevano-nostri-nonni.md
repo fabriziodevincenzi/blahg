@@ -6,7 +6,7 @@ description: >-
   accarezzare le identità fragili
 tags:
   - musings
-added: 2025-02-10T09:36:45.938Z
+added: 2023-03-30T22:00:00.000Z
 ---
 
 ![](/assets/fiat-600-anni-sessanta.jpg)
