@@ -5,7 +5,7 @@ description: >-
   Non per gli effetti speciali e sonori, ma per le dinamiche con il pubblico in
   sala e con quello fuori
 tags: []
-added: 2025-02-10T13:08:10.146Z
+added: 2023-12-26T23:00:00.000Z
 ---
 
 Quando in generale mi chiedono «Com’è questo film?», posso rispondere «Un film da vedere al cinema» quando ne valeva la pena per gli effetti speciali e l'immersione sonora. Ora devo ritarare la risposta anche in base a quanto il film parli all’esperienza collettiva piuttosto che a quella del singolo spettatore.
