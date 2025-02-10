@@ -65,8 +65,8 @@ export default defineConfig({
 						list: true,
 						options: [
 							{
-								value: "editoria",
-								label: "Editoria",
+								value: "technical",
+								label: "Technical",
 							},
 							{
 								value: "advice",
