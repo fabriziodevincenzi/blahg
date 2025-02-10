@@ -2,7 +2,7 @@
 title: Personale opinione sul lavoro di Stefano Feltri
 slug: personale-opinione-sul-lavoro-di-stefano-feltri
 description: >-
-  Non so cosa Stefano Feltri farà da grande, dopo non essere più alla direzione
+  Non so cosa Stefano Feltri farà da grande, ora che non sarà più alla direzione
   del Domani, ma c'è tanto bisogno di democratizzare l'economia, anche col
   contributo del giornalismo
 tags:
